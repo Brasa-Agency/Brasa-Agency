@@ -1,6 +1,6 @@
 ### Somos Brasa Agency
 
-Somos una agencia boutique que respira innovación.
+Una agencia boutique que respira innovación.
 Creamos experiencias digitales 360 que generan sostenibilidad en resultados para nuestros clientes
 
 ### Tu growth, nuestra obsesión.
